@@ -4,7 +4,6 @@ Independent principal product designer for AI and consumer products, based in St
 
 - Portfolio: [arnetz.design](https://arnetz.design)
 - LinkedIn: [linkedin.com/in/gustavarnetz](https://www.linkedin.com/in/gustavarnetz/)
-- Email: gustav.arnetz@gmail.com
 
 ### What I do
 
